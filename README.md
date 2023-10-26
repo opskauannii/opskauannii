@@ -9,3 +9,7 @@
 
   kauanni.maximiano@escola.pr.gov.br
 
+
+
+![](https://media.tenor.com/3crmJDOCkY4AAAAC/sunrise-landscape.gif)
+
